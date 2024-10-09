@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **krishnachaudhari2309@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Mu7UorOTjb7FRwTZ6E73ectp9LqfLbzG/view?usp=sharing](https://drive.google.com/file/d/1Mu7UorOTjb7FRwTZ6E73ectp9LqfLbzG/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
